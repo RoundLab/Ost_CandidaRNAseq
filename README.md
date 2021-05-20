@@ -1,4 +1,4 @@
-## Adaptive immunity promotes a mutually beneficial interaction between commensal eukaryotes
+## Adaptive immunity induces mutually beneficial interactions with gut fungi
 #### Kyla Ost, *et. al* 2021. *Nature*.
 
 **Abstract**: *to be added on publication*
