@@ -1,4 +1,4 @@
-## Adaptive immunity induces mutually beneficial interactions with gut fungi
+## Adaptive Immunity Induces Mutually Beneficial Interactions With Gut Fungi
 #### Kyla Ost, *et. al* 2021. *Nature*.
 
 **Abstract**: *to be added on publication*
